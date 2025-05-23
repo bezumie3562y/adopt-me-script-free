@@ -1,0 +1,1 @@
+# adopt-me-script-free
